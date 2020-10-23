@@ -1,2 +1,2 @@
 # PMdatabase
-pmadatbase.xyz
+https://pmadatbase.xyz
