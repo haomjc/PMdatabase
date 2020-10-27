@@ -1,2 +1,0 @@
-# PMdatabase
-https://pmadatbase.xyz
